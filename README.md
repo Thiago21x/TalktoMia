@@ -1,0 +1,1 @@
+MIA é uma inteligência artificial projetada para transformar a interação entre pessoas e tecnologia. Com um design intuitivo e respostas inteligentes, MIA auxilia na solução de problemas, automatiza tarefas e proporciona uma experiência digital simplificada e eficiente.
